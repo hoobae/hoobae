@@ -2,7 +2,7 @@ wip -_-
 
 <p align ="center"><img src="https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=-%E2%81%A0%E1%84%92%E2%81%A0%E1%B4%A5%E2%81%A0%E1%84%92%E2%81%A0-&left_color=%23AF9FAF&right_color=%23CFDFDF&format=true&radius=100&height=25" alt=visitor badge></p> 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[spade](https://github.com/Tordcest)ㅤㅤㅤ[toxic](https://github.com/hcwlf)ㅤㅤㅤ [amy](https://github.com/Ghost1amy)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[spade](https://github.com/Tordcest)ㅤㅤㅤ[toxic](https://github.com/hcwlf)ㅤㅤㅤ [amy](https://github.com/Ghost1amy)
 
 
 ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ 
