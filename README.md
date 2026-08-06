@@ -1,4 +1,4 @@
-wip -_-
+wip -_- not finishing this anytime soon since I'm lazy hi
 
 <p align ="center"><img src="https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=U%E2%81%A0%5E%E2%81%A0%EF%BD%AA%E2%81%A0%5E%E2%81%A0U&left_color=%23AF9FAF&right_color=%23CFDFDF&radius=20&height=30" alt="visitor badge"/></p>
                      
