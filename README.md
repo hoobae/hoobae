@@ -22,10 +22,10 @@ wip -_-
 <p align="center">——————</p>
 
 <p align="center"><a href="https://guns.lol/alnstslop">
-  <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1534187668454248488/Untitled135_20260804210607.png?ex=6a73371b&is=6a71e59b&hm=a58530eb898bb28d9cfe463bc5ebe235aac6429f82a0fb9b5020b993acddc388&" alt="guns" width="200" >
+  <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1534187668454248488/Untitled135_20260804210607.png?ex=6a75315b&is=6a73dfdb&hm=7595fce29b027f5f5a1f4d6c28ada8bdb4b7c1a8527bc1b02385f99ba5b4c3da&" alt="guns" width="200" >
 </a>
 <a href="https://pronouns.page/@Flibbert">
-  <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1534187666780979383/Untitled135_20260804210601.png?ex=6a73371b&is=6a71e59b&hm=b66d2f2df55a6ee09cd10c052ba88f4d58c6b481b3f6af71e2165adad94a8931&" alt="prns" width="200" >
+  <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1534187666780979383/Untitled135_20260804210601.png?ex=6a75315b&is=6a73dfdb&hm=95e31a25a569aa7c193ee13db9fc51d4121138020d5b456d6bad6823f4a929c8&" alt="prns" width="200" >
 </a>
 <a href="https://centivan.atabook.org/">
   <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1534187667716313319/Untitled135_20260804210604.png?ex=6a73371b&is=6a71e59b&hm=5881f044e4672cb0b4ca977b94d881926d2c3595e15fe05227b3ea48faf0fc82&" alt="ata" width="200" >
