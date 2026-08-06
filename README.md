@@ -9,15 +9,7 @@ wip -_- not finishing this anytime soon since I'm lazy hi
 ㅤ ㅤ ㅤㅤ ㅤ 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&redirect=true)</p>
 
-<p align="center">—</p>
 
-
-<p align="center"><a href="https://github.com/title-town">
-  <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1534197320902643732/Untitled138_20260804214753.png?ex=6a734019&is=6a71ee99&hm=b71e98e95811fc9fb4a5ec5b1bae5ef1b6e526689950973ea14c7ee3bdac323a&" alt="titletown" width="200" >
-</a>
-<a href="https://GitHub.com/pt-fashion">
-  <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1534197321322201159/Untitled138_20260804215138.png?ex=6a734019&is=6a71ee99&hm=0bb113db37cf5bc3516a5376055d616df66be271cf9528155b6063d3ecea7a9d&" alt="pt fashion" width="200" >
-</a><p>
 
 <p align="center">—</p>
 
