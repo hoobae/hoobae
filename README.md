@@ -12,7 +12,7 @@ dude have some bullshit first hi
 <a href="https://pronouns.page/@Flibbert">prns</a>
 <a href="https://centivan.atabook.org/">ata</a></p>
 
-<p align=" center">ty! (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡<a href="https://GitHub.com/title-town">title-town</a>
+<p align=" center">ty! (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡ pt's mizi <a href="https://GitHub.com/title-town">title-town</a>
 <a href="https://github.com/pt-fashion">pt-fashion</a>  
 <a href="https://GitHub.com/charactersofpt">charactersofpt</a></p>
 
