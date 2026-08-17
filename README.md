@@ -35,14 +35,18 @@
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
-
-<p align=" center"><a href="https://guns.lol/alnstslop">guns</a>
+<p align=" center">h<sub>ono</sub>rable <sub>mentions ♡</sub> <sub><a href="https://GitHub.com/dojjiko">spade</a>
+<a href="https://github.com/ghost1amy">amy</a>  
+<sub><a href="https://GitHub.com/hcwlf">toxic</a> <a href="https://GitHub.com/yellowmugqs">kyle</a> <a href="https://GitHub.com/ceekom">ceekom</a> <a href="https://GitHub.com/vivichan-heh">vivi</a> <a href="https://GitHub.com/tillcest">eden</a> <a href="https://GitHub.com/sweet-scar">byeol</a> <a href="https://GitHub.com/mayumixx">yumi</a> <a href="https://GitHub.com/tillsguitar">mai</a></p></sub> 
+  
+<p align=" center"><sub><a href="https://guns.lol/alnstslop">guns</a>
 <a href="https://pronouns.page/@Flibbert">prns</a>
-<a href="https://centivan.atabook.org/">ata</a></p>
+<a href="https://centivan.atabook.org/">ata</a></sub></p>
 
-<p align=" center">ty! (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡ pt's mizi <a href="https://GitHub.com/title-town">title-town</a>
+<p align=" center"><sub>ty! (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡</sub> pt's mizi <sub><a href="https://GitHub.com/title-town">title-town</a>
 <a href="https://github.com/pt-fashion">pt-fashion</a>  
-<a href="https://GitHub.com/charactersofpt">charactersofpt</a></p>
+<a href="https://GitHub.com/charactersofpt">charactersofpt</a></sub></p>
+
 
 
 
