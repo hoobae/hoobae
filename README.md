@@ -44,9 +44,9 @@
 <a href="https://pronouns.page/@Flibbert">prns</a>
 <a href="https://centivan.atabook.org/">ata</a></sub></p>
 
-<p align=" center"><sub>ty! (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡</sub> pt's mizi <sub><a href="https://GitHub.com/title-town">title-town</a>
+<p align=" center"><sub>ty! (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡</sub> pt's mizi <sub>(+ pretty ponies,and #1 mizi fan.)</sub> <sub><a href="https://GitHub.com/title-town">title-town</a>
 <a href="https://github.com/pt-fashion">pt-fashion</a>  
-<a href="https://GitHub.com/charactersofpt">charactersofpt</a></sub></p>
+<a href="https://GitHub.com/charactersofpt">charactersofpt</a> <a href="https://GitHub.com/pt-hall-of-media">pt-hall-of-media</a></sub></p>
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
