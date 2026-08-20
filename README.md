@@ -38,7 +38,7 @@
 ㅤㅤㅤㅤㅤㅤㅤ
 <p align=" center">h<sub>ono</sub>rable <sub>mentions ♡</sub> <sub><a href="https://GitHub.com/dojjiko">spade</a>
 <a href="https://github.com/ghost1amy">amy</a>  
-<sub><a href="https://GitHub.com/hcwlf">toxic</a> <a href="https://GitHub.com/yellowmugqs">kyle</a> <a href="https://GitHub.com/ceekom">ceekom</a> <a href="https://GitHub.com/vivichan-heh">vivi</a> <a href="https://GitHub.com/tillcest">eden</a> <a href="https://GitHub.com/sweet-scar">byeol</a> <a href="https://GitHub.com/mayumixx">yumi</a> <a href="https://GitHub.com/tillsguitar">mai</a></p></sub> 
+<sub><a href="https://GitHub.com/hcwlf">toxic</a> <a href="https://GitHub.com/yellowmugqs">kyle</a> <a href="https://GitHub.com/ceekom">ceekom</a> <a href="https://GitHub.com/vivichan-heh">vivi</a> <a href="https://GitHub.com/tillcest">eden</a> <a href="https://GitHub.com/sweet-scar">byeol</a> <a href="https://GitHub.com/mayumixx">yumi</a> <a href="https://GitHub.com/astrxid">cas</a> <a href="https://GitHub.com/tillsguitar">mai</a></p></sub> 
   
 <p align=" center"><sub><a href="https://guns.lol/alnstslop">guns</a>
 <a href="https://pronouns.page/@Flibbert">prns</a>
