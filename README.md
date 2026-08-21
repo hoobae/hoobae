@@ -24,7 +24,7 @@
 
 
 
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1538908478595137626/Untitled175_20260817215229.png?ex=6a8463b4&is=6a831234&hm=c8126b0a78a9001e71e74ca33137c19bb205ea6467aa62e8bc29fe05ca69590d&" alt=" iroha" width=" 300"></p>
+
 
 
 
