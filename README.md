@@ -4,6 +4,8 @@
 <p align="center"><img src="https://cdn.discordapp.com/attachments/1540726356063686710/1540727598500290600/IMG_6609.png?ex=6a8b01e4&is=6a89b064&hm=f62c428ef5e84a0f76498c24c76b6ebba343f892fbac6877835a420893bf4e1e&alt="oop" width="200"></p>
 
 <p align="center"><sub>the proof was INFRONT of ur face</sub></p>
+<p align=" center">huge thanks to <a href="https://github.com/walkingdeathtrap">walkingdeathtrap</a> for the rest of the screenshots.</p>
+
 
 
 
@@ -59,9 +61,9 @@
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
-<p align=" center">h<sub>ono</sub>rable <sub>mentions ♡</sub> <sub><a href="https://GitHub.com/dojjiko">spade</a>
+<p align=" center">h<sub>ono</sub>rable <sub>mentions ♡</sub> <a href="https://GitHub.com/tillcest">eden. here u go bitch ([fedwithyourLies] whispers: giveme a fat *** mention why is my name barelt showing) </a> <sub><a href="https://GitHub.com/dojjiko">spade</a>
 <a href="https://github.com/ghost1amy">amy</a>  
-<sub><a href="https://GitHub.com/hcwlf">toxic</a> <a href="https://GitHub.com/yellowmugqs">kyle</a> <a href="https://GitHub.com/ceekom">ceekom</a> <a href="https://GitHub.com/vivichan-heh">vivi</a> <a href="https://GitHub.com/tillcest">eden</a> <a href="https://GitHub.com/sweet-scar">byeol</a> <a href="https://GitHub.com/mayumixx">yumi</a> <a href="https://GitHub.com/astrxid">cas</a> <a href="https://GitHub.com/tillsguitar">mai</a></p></sub> 
+<sub><a href="https://GitHub.com/hcwlf">toxic</a> <a href="https://GitHub.com/yellowmugqs">kyle</a> <a href="https://GitHub.com/ceekom">ceekom</a> <a href="https://GitHub.com/vivichan-heh">vivi</a> <a href="https://GitHub.com/sweet-scar">byeol</a> <a href="https://GitHub.com/mayumixx">yumi</a> <a href="https://GitHub.com/astrxid">cas</a> <a href="https://GitHub.com/tillsguitar">mai</a></p></sub> 
   
 <p align=" center"><sub><a href="https://guns.lol/alnstslop">guns</a>
 <a href="https://pronouns.page/@hoobae">prns</a>
