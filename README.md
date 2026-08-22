@@ -10,7 +10,7 @@
 
 <p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1540696460524265632/Untitled195_20260822201624.png?ex=6a8ae4e4&is=6a899364&hm=d3b4efc0bbfb5a1efe9e0b874bf17c55b5bdaaabab3f485a21f399919b3b1d86&" alt="mizi" width="250"></p>
 
-ㅤ<p align="center">ㅤㅤㅤㅤ𖥻ㅤㅤㅤ<sub>ᐡ > ﻌ < ᐡ</sub>ㅤㅤ ׁ ׅ ㅤㅤㅤㅤㅤㅤㅤ<img src="https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=U%E2%81%A0%C2%A0%E2%81%A0%C2%B4%E2%81%A0%EA%93%83%E2%81%A0%C2%A0%E2%81%A0%60%E2%81%A0%C2%A0%E2%81%A0U&left_color=%23000000&right_color=%239c9c9c" alt="visitor badge"/>
+ㅤ<p align="center">ㅤㅤㅤㅤ𖥻ㅤㅤㅤ<sub>ᐡ > ﻌ < ᐡ</sub>ㅤㅤ ׁ ׅ ㅤㅤㅤㅤㅤㅤㅤ<img src="https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=U%E2%81%A0%C2%A0%E2%81%A0%C2%B4%E2%81%A0%EA%93%83%E2%81%A0%C2%A0%E2%81%A0%60%E2%81%A0%C2%A0%E2%81%A0U&left_color=%23ffffc1&right_color=%23fc77a3&radius=0&height=15" alt="visitor badge"/>
 ㅤㅤㅤㅤㅤㅤㅤ•⩊•  ⋮  ◡◡ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(╥‸╥) ㅤ ㅤㅤㅤㅤㅤ<sub>ㅤˑ 𓈒 𐔌  ͡꒱ ۫ㅤ</sub></p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤ ㅤㅤ 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
