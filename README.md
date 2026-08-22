@@ -88,7 +88,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-<p align="center"><a href="https://github.com/user-attachments/assets/4bc8804f-121e-478b-96de-dcabd5ecc810"  </p>
+
 
 
 
