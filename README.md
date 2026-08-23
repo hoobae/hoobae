@@ -13,7 +13,7 @@
 
 
 
-<p align=" center"><sub>don't take inspo from my skins</sub></p>
+<p align=" center"><sub>$\color{#ffffc9}\textsf{dont take inspo from my skins}$</sub></p>
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
