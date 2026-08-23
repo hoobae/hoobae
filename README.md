@@ -57,7 +57,10 @@
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
+<p align=" center"><sub><a href="https://guns.lol/alnstslop">guns</a>
+<a href="https://pronouns.page/@hoobae">prns</a>
+<a href="https://centivan.atabook.org/">ata</a></sub></p>
+ ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
@@ -65,9 +68,6 @@
 <a href="https://github.com/ghost1amy">amy</a>  
 <sub><a href="https://GitHub.com/hcwlf">toxic</a> <a href="https://GitHub.com/yellowmugqs">kyle</a> <a href="https://GitHub.com/ceekom">ceekom</a> <a href="https://GitHub.com/vivichan-heh">vivi</a> <a href="https://GitHub.com/sweet-scar">byeol</a> <a href="https://GitHub.com/mayumixx">yumi</a> <a href="https://GitHub.com/astrxid">cas</a> <a href="https://GitHub.com/tillsguitar">mai</a></p></sub> 
   
-<p align=" center"><sub><a href="https://guns.lol/alnstslop">guns</a>
-<a href="https://pronouns.page/@hoobae">prns</a>
-<a href="https://centivan.atabook.org/">ata</a></sub></p>
 
 <p align=" center"><sub>ty! (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡</sub> pt's mizi <sub>(+ pretty ponies,and #1 mizi fan.)ㅤㅤ ׁ ׅ ㅤㅤㅤ</sub> <sub><a href="https://GitHub.com/title-town">title-town</a>
 <a href="https://github.com/pt-fashion">pt-fashion</a> <a href="https://github.com/ponytowncosplayers">pt-cosplayers</a> 
