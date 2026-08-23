@@ -23,7 +23,8 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<p align=" center"><sub><a href="https://kirari.cafe/hoobae">👀</a></sub></p>
+<p align="center"><a href="https://kirari.cafe/hoobae">
+    <img src="https://cdn.discordapp.com/attachments/1282985399051878441/1541020033818427493/Untitled201_20260823174302.png?ex=6a8c123e&is=6a8ac0be&hm=d978e588086e39bcc850f167a9f1625d5ecd4dea4aab22a62dd35a5a16cc2bbb&" alt="kirari.cafe" width="200" >
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
