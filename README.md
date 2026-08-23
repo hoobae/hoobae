@@ -26,7 +26,7 @@
 
 <p align="center"><a href="https://kirari.cafe/hoobae">🩷</a></p>
 
-ㅤ<p align="center">ㅤㅤㅤㅤ𖥻ㅤㅤㅤ<sub>ᐡ > ﻌ < ᐡ</sub>ㅤㅤ ׁ ׅ ㅤㅤㅤㅤㅤㅤㅤ<img src="https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=U%E2%81%A0%C2%A0%E2%81%A0%C2%B4%E2%81%A0%EA%93%83%E2%81%A0%C2%A0%E2%81%A0%60%E2%81%A0%C2%A0%E2%81%A0U&left_color=%23ffffc1&right_color=%23fc77a3&radius=0&height=15" alt="visitor badge"/>
+ㅤ<p align="center">ㅤㅤㅤㅤ𖥻ㅤㅤㅤ<sub>$\color{#ffffc9}\textsf{ᐡ > ﻌ < ᐡ}$</sub>ㅤㅤ ׁ ׅ ㅤㅤㅤㅤㅤㅤㅤ<img src="https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=U%E2%81%A0%C2%A0%E2%81%A0%C2%B4%E2%81%A0%EA%93%83%E2%81%A0%C2%A0%E2%81%A0%60%E2%81%A0%C2%A0%E2%81%A0U&left_color=%23ffffc1&right_color=%23fc77a3&radius=0&height=15" alt="visitor badge"/>
 ㅤㅤㅤㅤㅤㅤㅤ•⩊•  ⋮  ◡◡ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(╥‸╥) ㅤ ㅤㅤㅤㅤㅤ<sub>ㅤˑ 𓈒 𐔌  ͡꒱ ۫ㅤ</sub></p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤ ㅤㅤ 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
