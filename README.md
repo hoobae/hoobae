@@ -67,6 +67,8 @@
 <p align=" center"><sub>ty! (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡</sub> pt's mizi <sub>(+ pretty ponies,and #1 mizi fan.)ㅤㅤ ׁ ׅ ㅤㅤㅤ</sub> <sub><a href="https://GitHub.com/title-town">title-town</a>
 <a href="https://github.com/pt-fashion">pt-fashion</a> <a href="https://github.com/ponytowncosplayers">pt-cosplayers</a> 
 <a href="https://GitHub.com/charactersofpt">charactersofpt</a> <a href="https://GitHub.com/pt-hall-of-media">pt-hall-of-media</a> <a href="https://GitHub.com/ponychievements">ponychievements</a></sub></p>
+<p align=" center"><sub>amy and spade, ilygsm *is happy my trio</sub>ㅤㅤ ׁ ׅ ㅤㅤㅤ</sub> <sub><a href="https://github.com/pt-friendships">pt-friendships</a>
+  
 <p align=" center"><sub>tysm yumi! im queen novo now yay</sub>ㅤㅤ ׁ ׅ ㅤㅤㅤ</sub> <sub><a href="https://github.com/PinkieWinkiee">pinkiewinkiee</a>
 
 
