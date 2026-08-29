@@ -14,6 +14,7 @@
 
 
 <p align=" center"><sub>$\color{#ffffc9}\textsf{dont take inspo from my skins}$</sub></p>
+<p align=" center"><sub>$\color{#ffffc9}\textsf{pfp is my own art bc im a egotistical bitch}$</sub></p>
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1540696460524265632/Untitled195_20260822201624.png?ex=6a8ae4e4&is=6a899364&hm=d3b4efc0bbfb5a1efe9e0b874bf17c55b5bdaaabab3f485a21f399919b3b1d86&" alt="mizi" width="250"></p>
