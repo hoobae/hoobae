@@ -17,7 +17,7 @@
  
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1540696460524265632/Untitled195_20260822201624.png?ex=6a8ae4e4&is=6a899364&hm=d3b4efc0bbfb5a1efe9e0b874bf17c55b5bdaaabab3f485a21f399919b3b1d86&" alt="mizi" width="250"></p>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1540696460524265632/Untitled195_20260822201624.png?ex=6a9619a4&is=6a94c824&hm=a1e946c6c431b7e3afdb3648f0737b345fd1a34e1445de7f813e99deca985cf6&" alt="mizi" width="250"></p>
 
 
 
