@@ -13,11 +13,11 @@
 
 
 
-<p align=" center"><sub>$\color{#ffffc9}\textsf{dont take inspo from my skins}$</sub></p>
+<p align=" center"><sub>$\color{#958690}\textsf{dont take inspo from my skins}$</sub></p>
  
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1540696460524265632/Untitled195_20260822201624.png?ex=6a9619a4&is=6a94c824&hm=a1e946c6c431b7e3afdb3648f0737b345fd1a34e1445de7f813e99deca985cf6&" alt="mizi" width="250"></p>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1544646814232354938/Untitled227_20260902174713.png?ex=6a9943f2&is=6a97f272&hm=cb8ca8a1151c344912a20cd7cac15a2d97fc0945ef3109f007b9995e3bbe261a&" alt="mizi" width="250"></p>
 
 
 
@@ -27,8 +27,8 @@
 
 <p align="center"><a href="https://kirari.cafe/hoobae">🩷</a></p>
 
-ㅤ<p align="center">ㅤㅤㅤㅤ𖥻ㅤㅤㅤ<sub>$\color{#ffffc9}\textsf{ᐡ > ﻌ < ᐡ}$</sub>ㅤㅤ ׁ ׅ ㅤㅤㅤㅤㅤㅤㅤ<img src="https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=U%E2%81%A0%C2%A0%E2%81%A0%C2%B4%E2%81%A0%EA%93%83%E2%81%A0%C2%A0%E2%81%A0%60%E2%81%A0%C2%A0%E2%81%A0U&left_color=%23ffffc1&right_color=%23fc77a3&radius=0&height=15" alt="visitor badge"/>
-ㅤㅤㅤㅤㅤㅤㅤ•⩊•  ⋮  ◡◡ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(╥‸╥) ㅤ ㅤㅤㅤㅤㅤ<sub>$\color{#ffffc9}\textsf{ㅤˑ 𓈒 𐔌  ͡꒱ ۫ㅤ}$</sub></p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤ<p align="center">ㅤㅤㅤㅤ𖥻ㅤㅤㅤ<sub>$\color{#958690}\textsf{ᐡ > ﻌ < ᐡ}$</sub>ㅤㅤ ׁ ׅ ㅤㅤㅤㅤㅤㅤㅤ<img src="https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=U%E2%81%A0%C2%A0%E2%81%A0%C2%B4%E2%81%A0%EA%93%83%E2%81%A0%C2%A0%E2%81%A0%60%E2%81%A0%C2%A0%E2%81%A0U&left_color=%23ffffc1&right_color=%23fc77a3&radius=0&height=15" alt="visitor badge"/>
+ㅤㅤㅤㅤㅤㅤㅤ•⩊•  ⋮  ◡◡ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(╥‸╥) ㅤ ㅤㅤㅤㅤㅤ<sub>$\color{#958690}\textsf{ㅤˑ 𓈒 𐔌  ͡꒱ ۫ㅤ}$</sub></p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤ ㅤㅤ 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
