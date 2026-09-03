@@ -1,4 +1,5 @@
-
+<p align=" center"><sub>$\color{#958690}\textsf{my art. ok bye.}$</sub></p>
+<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1544977542014967888/Untitled238_20260903154823.png?ex=6a9a77f6&is=6a992676&hm=a6e02bef605d6b80104d74f0fcfc65dd991165cc68af8e81a621c7fa28e4acfc&" alt="mizi" width="250"></p>
 
 
 
