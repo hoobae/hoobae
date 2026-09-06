@@ -63,7 +63,7 @@
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
-<p align=" center"><sub>honorable mentions ♡ㅤㅤ ׁ ׅ ㅤㅤㅤ</sub><a href="https://GitHub.com/tillcest">eden. </sub></a> <sub><a href="https://GitHub.com/dojjiko">spade</a>
+<p align=" center"><sub>honorable mentions ♡ㅤㅤ ׁ ׅ ㅤㅤㅤ</sub><a href="https://GitHub.com/tillcest">eden.creditmecreditmecreditme I did everything </sub></a> <sub><a href="https://GitHub.com/dojjiko">spade</a>
 <a href="https://github.com/ghost1amy">amy</a>  
 <a href="https://GitHub.com/hcwlf">toxic</a> <a href="https://GitHub.com/mayumixx">yumi</a> <a href="https://GitHub.com/yellowmugqs">kyle</a> <a href="https://GitHub.com/ceekom">ceekom</a> <a href="https://GitHub.com/vivichan-heh">vivi</a> <a href="https://GitHub.com/sweet-scar">byeol</a> <a href="https://GitHub.com/astrxid">cas</a> <a href="https://GitHub.com/tillsguitar">mai</a></p></sub> 
   
@@ -76,7 +76,7 @@
 <p align=" center"><sub>tysm yumi! im queen novo now yay</sub>ㅤㅤ ׁ ׅ ㅤㅤㅤ</sub> <sub><a href="https://github.com/PinkieWinkiee">pinkiewinkiee</a>
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤcreditmecreditmecreditme I did everythingㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
