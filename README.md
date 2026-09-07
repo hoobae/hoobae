@@ -63,7 +63,7 @@
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
-<p align=" center"><sub>honorable mentions ♡ㅤㅤ ׁ ׅ ㅤㅤㅤ</sub><a href="https://GitHub.com/tillcest">eden.creditmecreditmecreditme I did everything </sub></a> <sub><a href="https://GitHub.com/dojjiko">spade</a>
+<p align=" center"><sub>honorable mentions ♡ㅤㅤ ׁ ׅ ㅤㅤㅤ</sub><a href="https://GitHub.com/tillcest">eden.creditmecreditmecreditme I did everything on ur page.</sub></a> <sub><a href="https://GitHub.com/dojjiko">spade</a>
 <a href="https://github.com/ghost1amy">amy</a>  
 <a href="https://GitHub.com/hcwlf">toxic</a> <a href="https://GitHub.com/mayumixx">yumi</a> <a href="https://GitHub.com/yellowmugqs">kyle</a> <a href="https://GitHub.com/ceekom">ceekom</a> <a href="https://GitHub.com/vivichan-heh">vivi</a> <a href="https://GitHub.com/sweet-scar">byeol</a> <a href="https://GitHub.com/astrxid">cas</a> <a href="https://GitHub.com/tillsguitar">mai</a></p></sub> 
   
