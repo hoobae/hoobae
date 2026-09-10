@@ -1,4 +1,4 @@
-
+ 
 
 <p align=" center"><sub>$\color{#958690}\textsf{my art. ok bye.}$</sub></p>
 <p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1544977542014967888/Untitled238_20260903154823.png?ex=6a9a77f6&is=6a992676&hm=a6e02bef605d6b80104d74f0fcfc65dd991165cc68af8e81a621c7fa28e4acfc&" alt="mizi" width="250"></p>
@@ -65,7 +65,7 @@
 ㅤㅤㅤㅤㅤㅤㅤ
 <p align=" center"><sub>honorable mentions ♡ㅤㅤ ׁ ׅ ㅤㅤㅤ</sub><a href="https://GitHub.com/tillcest">eden.creditmecreditmecreditme I did everything on ur page.</sub></a> <sub><a href="https://GitHub.com/dojjiko">spade</a>
 <a href="https://github.com/ghost1amy">amy</a>  
-<a href="https://GitHub.com/hcwlf">toxic</a> <a href="https://GitHub.com/mayumixx">yumi</a> <a href="https://GitHub.com/yellowmugqs">kyle</a> <a href="https://GitHub.com/ceekom">ceekom</a> <a href="https://GitHub.com/vivichan-heh">vivi</a> <a href="https://GitHub.com/sweet-scar">byeol</a> <a href="https://GitHub.com/astrxid">cas</a> <a href="https://GitHub.com/tillsguitar">mai</a></p></sub> 
+<a href="https://GitHub.com/hcwlf">toxic</a> <a href="https://GitHub.com/mayumixx">yumi</a> <a href="https://GitHub.com/ceekom">ceekom</a> <a href="https://GitHub.com/vivichan-heh">vivi</a> <a href="https://GitHub.com/sweet-scar">byeol</a> <a href="https://GitHub.com/astrxid">cas</a> <a href="https://GitHub.com/tillsguitar">mai</a></p></sub> 
   
 
 <p align=" center"><sub>ty! (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡</sub> pt's mizi <sub>(+ pretty ponies,and #1 mizi fan.)ㅤㅤ ׁ ׅ ㅤㅤㅤ</sub> <sub><a href="https://GitHub.com/title-town">title-town</a>
