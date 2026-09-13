@@ -5,7 +5,7 @@ wait.im so lazy.
 <p align="center"><img width="350" alt="8698" src="https://github.com/user-attachments/assets/e3ae945f-72ef-47fe-94d7-96e252908648" /></p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=d14141&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=d14141&bar_color_cover=false" width="250">
   </a>
 </p>
 ㅤㅤ
