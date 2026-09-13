@@ -4,8 +4,7 @@ wait.im so lazy.
 
 <p align="center"><img width="350" alt="8698" src="https://github.com/user-attachments/assets/e3ae945f-72ef-47fe-94d7-96e252908648" /></p>
 ㅤㅤ
-<p align=" center"><sub><a href="https://guns.lol/alnstslop">guns</a>
-<a href="https://pronouns.page/@hoobae">prns</a>
+<p align=" center"><sub><a href="https://prey.lol/@hoobae">kirari cafe</a>
 <a href="https://centivan.atabook.org/">ata</a></sub></p>
  ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
