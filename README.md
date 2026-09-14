@@ -20,4 +20,4 @@ wait.im so lazy.
 <p align=" center"></sub> <sub><a href="https://GitHub.com/title-town">title-town</a>
 <a href="https://github.com/pt-fashion">pt-fashion</a> <a href="https://github.com/ponytowncosplayers">pt-cosplayers</a> 
 <a href="https://GitHub.com/charactersofpt">charactersofpt</a> <a href="https://GitHub.com/pt-hall-of-media">pt-hall-of-media</a> <a href="https://github.com/Ponytowns-rewards">pt-rewards</a> <a href="https://GitHub.com/ponychievements">ponychievements</a></sub></p>
-</sub> <p align="center"><sub><a href="https://github.com/pt-friendships">pt-friendships</a> </sub> <sub><a href="https://github.com/PinkieWinkiee">pinkiewinkiee</a> <a href="https://github.com/PT-FANtastic-Hall">pt-fantastic-hall</a></p>
+</sub> <p align="center"><sub><a href="https://github.com/pt-friendships">pt-friendships</a> </sub> <sub><a href="https://github.com/PinkieWinkiee">pinkiewinkiee</a> <a href="https://github.com/PT-FANtastic-Hall">pt-fantastic-hall</a> <a href="https://github.com/pt-ship-nominations">pt-ship-nominations</a></p>
