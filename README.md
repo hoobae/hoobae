@@ -20,9 +20,13 @@
 <a href="https://centivan.atabook.org/">ata</a></sub></p>
  ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ<p align="center"><img width="20" height="20" alt="9109" src="https://github.com/user-attachments/assets/6785f257-aeb1-4286-b129-6262012c37e3" /></p>
 
-<p align="center"><sub>pt's mizi teehee</sub></p>ㅤㅤㅤㅤㅤㅤ
+
+<p align="center"><sub>pt's mizi teehee (art drawn by me) </sub></p>ㅤㅤㅤㅤㅤㅤ
+
+<p align="center"><img width="355" height="261" alt="9116" src="https://github.com/user-attachments/assets/f113534a-a50f-41c5-a1c5-25f127ab329e" />
+</p>
+
 
 
 <p align=" center"></sub> <sub><a href="https://GitHub.com/title-town">title-town</a>
