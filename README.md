@@ -16,13 +16,13 @@
   </a>
 </p>
 ㅤㅤ
-<p align=" center"><sub><a href="https://prey.lol/@hoobae">kirari cafe</a>
-<a href="https://centivan.atabook.org/">ata</a></sub></p>
+<p align=" center"><sub><a href="https://prey.lol/@hoobae">𝙠іr𝗮𝗿𝗶 ᥴ𝗮𝖿𝙚</a>
+<a href="https://centivan.atabook.org/">𝙖𝘁ᥲ</a></sub></p>
  ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 
 
-<p align="center"><sub>pt's mizi teehee (art drawn by me) </sub></p>ㅤㅤㅤㅤㅤㅤ
+<p align="center"><sub>𝗽𝙩'𝘀 𝗺іz𝗶 𝘁𝙚𝗲𝙝𝗲ᥱ (ᥲ𝙧𝘁 𝗱rᥲᥕᥒ 𝙗𝘆 𝙢𝙚) </sub></p>ㅤㅤㅤㅤㅤㅤ
 
 <p align="center"><img width="355" height="261" alt="9116" src="https://github.com/user-attachments/assets/f113534a-a50f-41c5-a1c5-25f127ab329e" />
 </p>
