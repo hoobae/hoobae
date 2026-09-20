@@ -1,3 +1,5 @@
+<p align="center"><img width="20" height="20" alt="9110" src="https://github.com/user-attachments/assets/ed3ed1d4-9109-46d5-9f08-9d3cf08fa04b" /></p>
+
 
 
 
@@ -16,7 +18,8 @@
 <a href="https://centivan.atabook.org/">ata</a></sub></p>
  ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ<p align="center"><img width="20" height="20" alt="9109" src="https://github.com/user-attachments/assets/6785f257-aeb1-4286-b129-6262012c37e3" /></p>
+
 <p align="center"><sub>pt's mizi teehee</sub></p>ㅤㅤㅤㅤㅤㅤ
 
 
