@@ -1,4 +1,4 @@
-<p align="center"><sub>dont take any inspo's from my skins or else ill skin myself alive</sub></p>
+<p align="center"><sub>dont take any inspo's from my me or my skins or else ill skin myself alive</sub></p>
 
 <p align="center"><img width="20" height="20" alt="9110" src="https://github.com/user-attachments/assets/ed3ed1d4-9109-46d5-9f08-9d3cf08fa04b" /></p>
 
