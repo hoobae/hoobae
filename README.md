@@ -9,7 +9,7 @@
 
 <p align="center"><sub>⠀ ⠀⠀ ⠀ 18⠀⠀ ⠀ ⠀⠀ ⠀  𝓶𝓲𝘇𝗶⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀  𝗵ᥱ⠀𝗵іm ⠀ ⠀⠀ ⠀ :⠀⠀@  𝗴ᥣᥣ𝗶𝘁⠀</sub></p> ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ <p align="center"><sub>⠀ ⠀ ︶ ⠀ ⠀⠀ ⠀ ₌ㅇᆽㅇ₌ ⠀ ⠀𝙝𝗮𝗿᥎ᥱ𝘆</sub></p>  ‎⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀<p align="center">─────────────</p>
 
-<p align="center"><img width="550" height=300 alt="8698" src="https://github.com/user-attachments/assets/6942afc1-2d52-469b-b222-b903cd168fb8" /></p>
+
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=d14141&bar_color_cover=false" width="250">
