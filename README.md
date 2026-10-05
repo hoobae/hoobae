@@ -65,6 +65,7 @@
   <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/43130212-006f-48ad-80ed-130057bcef99">
   <img width="600" height="300"  alt="icon" src="https://github.com/user-attachments/assets/43130212-006f-48ad-80ed-130057bcef99">
 </picture></p>
+<p align=" center"><sub>pt's mizi + more</sub></p>
 <p align=" center"></sub> <sub><a href="https://GitHub.com/title-town">title-town</a>
 <a href="https://github.com/pt-fashion">pt-fashion</a> <a href="https://github.com/ponytowncosplayers">pt-cosplayers</a> 
 <a href="https://GitHub.com/charactersofpt">charactersofpt</a> <a href="https://GitHub.com/pt-hall-of-media">pt-hall-of-media</a> <a href="https://github.com/Ponytowns-rewards">pt-rewards</a> <a href="https://GitHub.com/ponychievements">ponychievements</a></sub></p>
