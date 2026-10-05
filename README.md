@@ -18,7 +18,7 @@
 
 
 
-<p align="center" ><picture>
+<p align="center" ><a href="https://Kuro.rip/hoobae"><picture>
   <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/e6e31331-502d-49b9-ac63-9680dec2aff6">
   <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/e6e31331-502d-49b9-ac63-9680dec2aff6">
   <img width="300" height="150"  alt="banner" src="https://github.com/user-attachments/assets/e6e31331-502d-49b9-ac63-9680dec2aff6">
