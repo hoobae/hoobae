@@ -51,6 +51,9 @@
 
 
 
+
+
+
 <div align="center"><table>
   <tr>
     <td width="40%" valign="top">
@@ -66,6 +69,12 @@
 <a href="https://github.com/pt-fashion">pt-fashion</a> <a href="https://github.com/ponytowncosplayers">pt-cosplayers</a> 
 <a href="https://GitHub.com/charactersofpt">charactersofpt</a> <a href="https://GitHub.com/pt-hall-of-media">pt-hall-of-media</a> <a href="https://github.com/Ponytowns-rewards">pt-rewards</a> <a href="https://GitHub.com/ponychievements">ponychievements</a></sub></p>
 </sub> <p align="center"> <sub><a href="https://github.com/pt-friendships">pt-friendships</a> </sub> <sub><a href="https://github.com/PinkieWinkiee">pinkiewinkiee</a> <a href="https://github.com/PT-FANtastic-Hall">pt-fantastic-hall</a> <a href="https://github.com/pt-ship-nominations">pt-ship-nominations</a> <a href="https://github.com/pt-heavyfictkin">pt-heavyfictkin</a></p></sub></p></table></div>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31jognmqcrmjul3ucandfsvzsvqu&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false" width="250">
+  </a>
+</p>
 
 
 <p align="center" ><picture>
